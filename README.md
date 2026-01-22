@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://media1.tenor.com/m/KSmoZt-bc2YAAAAC/dazai-osamu-hi-idk-what-to-put-here-loll.gif"{300px:300px} />
+<img src="https://64.media.tumblr.com/883373c0a263250a9ee08735069c96f2/6e3d1af9f4e06c59-4c/s500x750/193838e6aa8548956a3ede4e306341ef909587a8.jpg"{300px:300px} />
 </p>
 </p>
 -->
