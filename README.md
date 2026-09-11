@@ -1,7 +1,7 @@
 <p align="center">
   "ꜱᴛᴜᴘɪᴅ ꜰᴜᴄᴋɪɴɢ ʀᴀʙʙɪᴛ."
 <p align="center">
-<img src="https://media.tenor.com/FctnNVA1V0kAAAAM/evan-the-habit.gif"{300px:300px} />
+<img src="https://media1.tenor.com/m/aD5ITsgqzGkAAAAC/habit-habit-emh.gif"{300px:300px} />
 
 <p align="center"> 
 
